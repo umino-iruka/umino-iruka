@@ -40,5 +40,6 @@ sasodei DNI i see them as brothers/father-son. I mostly care for familial relati
 MAIN: [@PLASMASHIPPING](https://github.com/PLASMASHIPPING) <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/e1061339-c5c0-4ec2-8ad8-61e50fe75f03" />
 
 
-don't interact if you think fiction doesn't affect reality. you are all delusional. proshippers don't interact.
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/abf08d5c-95d7-4fee-a632-b76e80350e34" />
+
+don't interact if you think fiction doesn't affect reality. you are all delusional. proshippers don't interact.
