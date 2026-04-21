@@ -18,12 +18,6 @@
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/238f72e8-5d62-4810-b642-43d0d340db11" />
 
 
-
-<img width="2048" height="137" alt="image" src="https://github.com/user-attachments/assets/bf91bebe-172a-409e-b7cf-05c6d0cbad8c" />
-
-
-
-
 My favs are Iruka, team7 (YES including Yamato and Sai), Sasori, Deidara, Zabuza and Haku (DNI if you ship them), Shizune, Tsunade, Hagoromo and Sand siblings!!!!! I like zbkk kkir ymkk inosaku shinokibahina gaanaru t/obd obirin hsmd but im open to any ship as long as it isnt weird!! 
 sasodei DNI i see them as brothers/father-son. I mostly care for familial relationships more !! 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/4edc7dd9-7a9c-4cf8-8b72-3ac2ace136b0" />
